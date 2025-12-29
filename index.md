@@ -1,0 +1,56 @@
+# 最近の動画
+1.  [【石丸伸二vsマッチョ】石丸伸二が夜の別府へ…マッスルカフェ！？【ReHac9旅】](/rehacq_fan/ids/ebDyKp4FB50 "wikilink")
+    -   公開日: 2025-12-21
+    -   視聴数: 80,549
+    -   **いいね数: 6,856**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/ebDyKp4FB50/hqdefault.jpg)](https://www.youtube.com/watch?v=ebDyKp4FB50)
+1.  [【石丸伸二vs学生起業家】いじめはなくならない？石丸伸二の本気発言に学生衝撃…一体何が？「共生は無理」【新番組ReHac9LR】](/rehacq_fan/ids/GVnnqW05O1o "wikilink")
+    -   公開日: 2025-12-14
+    -   視聴数: 179,245
+    -   **いいね数: 9,286**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/GVnnqW05O1o/hqdefault.jpg)](https://www.youtube.com/watch?v=GVnnqW05O1o)
+1.  [【石丸伸二vs元伊藤忠エース】なぜUターン？失敗から学ぶ地方創生【新番組ReHac9LR】](/rehacq_fan/ids/0A0PEGd1SyQ "wikilink")
+    -   公開日: 2025-12-07
+    -   視聴数: 157,305
+    -   **いいね数: 8,252**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/0A0PEGd1SyQ/hqdefault.jpg)](https://www.youtube.com/watch?v=0A0PEGd1SyQ)
+1.  [【石丸伸二が支局長…ReHac9】高橋弘樹vs北九州市のドン！局長が激白…稼げる街にするには【ReHac9高橋弘樹】](/rehacq_fan/ids/Xc3ive-iyJs "wikilink")
+    -   公開日: 2025-12-06
+    -   視聴数: 53,219
+    -   **いいね数: 2,347**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/Xc3ive-iyJs/hqdefault.jpg)](https://www.youtube.com/watch?v=Xc3ive-iyJs)
+1.  [【石丸伸二が支局長…ReHac9】高橋弘樹vs北九州市長！ガチ激論…福岡市vs北九州！ライバルか仲間か？副首都構想…大阪を圧倒せよ！ReHacQ九州の行方は？【武内和久】](/rehacq_fan/ids/ugrRZIuKqzU "wikilink")
+    -   公開日: 2025-11-29
+    -   視聴数: 146,848
+    -   **いいね数: 4,896**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/ugrRZIuKqzU/hqdefault.jpg)](https://www.youtube.com/watch?v=ugrRZIuKqzU)
+
+# ReHac9の人気動画
+## 最近の人気動画
+
+# データ
+## 出演者別エンゲージメント
+- [出演者別エンゲージメント](engagement.md)
+
+## 視聴数が多い動画
+- [視聴数が多い動画](view.md)
+
+## いいねが多い動画
+- [いいねが多い動画](good.md)
+
+## 時系列データ
+#### [2025年12月](videos/202512 "wikilink")
+
+-   動画数: 4, 視聴数: 470,318, いいね数: 26,741
+
+#### [2025年11月](videos/202511 "wikilink")
+
+-   動画数: 3, 視聴数: 665,931, いいね数: 30,110
+
+---
+2025-12-29 22:35
