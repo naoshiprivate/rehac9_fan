@@ -1,32 +1,32 @@
 # ReHac9 最近の動画
 1.  [【石丸伸二VS福岡市長】非公開資料を公開！？民主主義はどうなる？【ReHac9vs高島宗一郎】](/rehac9_fan/ids/vF11Z0OT-RY "wikilink")
     -   公開日: 2025-12-31
-    -   視聴数: 245,660
-    -   **いいね数: 11,632**
+    -   視聴数: 252,201
+    -   **いいね数: 11,757**
     -   出演者: [石丸伸二](/rehac9_fan/people/石丸伸二 "wikilink"), 高島宗一郎
     - [![](https://img.youtube.com/vi/vF11Z0OT-RY/hqdefault.jpg)](https://www.youtube.com/watch?v=vF11Z0OT-RY)
 1.  [【石丸伸二vsマッチョ】石丸伸二が夜の別府へ…マッスルカフェ！？【ReHac9旅】](/rehac9_fan/ids/ebDyKp4FB50 "wikilink")
     -   公開日: 2025-12-21
-    -   視聴数: 87,225
-    -   **いいね数: 6,992**
+    -   視聴数: 87,552
+    -   **いいね数: 7,003**
     -   出演者: [石丸伸二](/rehac9_fan/people/石丸伸二 "wikilink")
     - [![](https://img.youtube.com/vi/ebDyKp4FB50/hqdefault.jpg)](https://www.youtube.com/watch?v=ebDyKp4FB50)
 1.  [【石丸伸二vs学生起業家】いじめはなくならない？石丸伸二の本気発言に学生衝撃…一体何が？「共生は無理」【新番組ReHac9LR】](/rehac9_fan/ids/GVnnqW05O1o "wikilink")
     -   公開日: 2025-12-14
-    -   視聴数: 196,139
-    -   **いいね数: 9,547**
+    -   視聴数: 196,883
+    -   **いいね数: 9,555**
     -   出演者: 仲西吏巧, 川島サラ, 桐谷晃世, 渡邉有陽, [石丸伸二](/rehac9_fan/people/石丸伸二 "wikilink"), 藤田崇都
     - [![](https://img.youtube.com/vi/GVnnqW05O1o/hqdefault.jpg)](https://www.youtube.com/watch?v=GVnnqW05O1o)
 1.  [【石丸伸二vs元伊藤忠エース】なぜUターン？失敗から学ぶ地方創生【新番組ReHac9LR】](/rehac9_fan/ids/0A0PEGd1SyQ "wikilink")
     -   公開日: 2025-12-07
-    -   視聴数: 169,588
-    -   **いいね数: 8,381**
+    -   視聴数: 170,283
+    -   **いいね数: 8,393**
     -   出演者: 河津知明, [石丸伸二](/rehac9_fan/people/石丸伸二 "wikilink")
     - [![](https://img.youtube.com/vi/0A0PEGd1SyQ/hqdefault.jpg)](https://www.youtube.com/watch?v=0A0PEGd1SyQ)
 1.  [【石丸伸二が支局長…ReHac9】高橋弘樹vs北九州市のドン！局長が激白…稼げる街にするには【ReHac9高橋弘樹】](/rehac9_fan/ids/Xc3ive-iyJs "wikilink")
     -   公開日: 2025-12-06
-    -   視聴数: 57,679
-    -   **いいね数: 2,400**
+    -   視聴数: 57,839
+    -   **いいね数: 2,404**
     -   出演者: 岡野武治, 柴田泰平, 神山勝司, [高橋弘樹](/rehac9_fan/people/高橋弘樹 "wikilink")
     - [![](https://img.youtube.com/vi/Xc3ive-iyJs/hqdefault.jpg)](https://www.youtube.com/watch?v=Xc3ive-iyJs)
 
@@ -46,11 +46,11 @@
 ## 時系列データ
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 5, 視聴数: 756,291, いいね数: 38,952
+-   動画数: 5, 視聴数: 764,758, いいね数: 39,112
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 3, 視聴数: 686,763, いいね数: 30,289
+-   動画数: 3, 視聴数: 687,315, いいね数: 30,299
 
 ---
-2026-01-07 12:30
+2026-01-07 20:30
