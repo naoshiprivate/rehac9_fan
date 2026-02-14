@@ -1,6 +1,6 @@
 ### [【石丸伸二vs大分】なぜ大分で起業？別府の地方創生とは【ReHac9旅】](https://www.youtube.com/watch?v=Muq89Vu0pJI)
 [![](https://img.youtube.com/vi/Muq89Vu0pJI/sddefault.jpg)](https://www.youtube.com/watch?v=Muq89Vu0pJI)
 -   公開日: 2025-11-27
--   視聴数: 272,379
--   **いいね数: 11,474**
+-   視聴数: 272,481
+-   **いいね数: 11,476**
 -   出演者: [石丸伸二](/rehac9_fan/people/石丸伸二 "wikilink")
