@@ -1,31 +1,31 @@
 # ReHac9 最近の動画
 1.  [【高橋弘樹vs重厚長大産業３代目vsロボットベンチャー CEO】現場の熟練者とスタートアップはどう向き合うのか？工業地帯に足りないものを本音で語る【ReHac９エコノミー　新北九州工業地帯SP】](/rehac9_fan/ids/W-1CjtsDgxw "wikilink")
     -   公開日: 2026-02-23
-    -   視聴数: 73,682
-    -   **いいね数: 1,758**
+    -   視聴数: 75,475
+    -   **いいね数: 1,771**
     -   出演者: 
     - [![](https://img.youtube.com/vi/W-1CjtsDgxw/hqdefault.jpg)](https://www.youtube.com/watch?v=W-1CjtsDgxw)
 1.  [【石丸伸二vs福岡ローカルタレント】うどんの麺が減らない？その真相…屋台からスポーツまで福岡の魅力をとことん語り尽くす【ReHac９Quest 中島浩二】](/rehac9_fan/ids/0YwyJEb14DM "wikilink")
     -   公開日: 2026-02-17
-    -   視聴数: 142,185
-    -   **いいね数: 5,536**
+    -   視聴数: 142,555
+    -   **いいね数: 5,540**
     -   出演者: 
     - [![](https://img.youtube.com/vi/0YwyJEb14DM/hqdefault.jpg)](https://www.youtube.com/watch?v=0YwyJEb14DM)
 1.  [【衆院選2026】あつまれ！落選の森in福岡…今後どうする？まったり緊急生配信【天野こうvsにえだ元氣vs丸尾けいすけvs山本ごうせいvs石丸伸二】](/rehac9_fan/ids/b7njGRfaLys "wikilink")
     -   公開日: 2026-02-13
-    -   視聴数: 153,403
-    -   **いいね数: 6,899**
+    -   視聴数: 153,804
+    -   **いいね数: 6,900**
     -   出演者: 
     - [![](https://img.youtube.com/vi/b7njGRfaLys/hqdefault.jpg)](https://www.youtube.com/watch?v=b7njGRfaLys)
 1.  [【高橋弘樹vs売上20億アニメ企業】福岡発、アニメで世界制覇？語学力ゼロでも勝てる理由【ReHac9LR カプセルジャパン】](/rehac9_fan/ids/XDwnS2ddMr8 "wikilink")
     -   公開日: 2026-02-11
-    -   視聴数: 36,018
+    -   視聴数: 36,113
     -   **いいね数: 1,030**
     -   出演者: 
     - [![](https://img.youtube.com/vi/XDwnS2ddMr8/hqdefault.jpg)](https://www.youtube.com/watch?v=XDwnS2ddMr8)
 1.  [【ReHac9討論会】衆議院選挙 福岡３区（早良区、西区、城南区の一部、糸島市）ネット討論会【石丸伸二vsにえだ元氣vs天野こう】](/rehac9_fan/ids/nRc30C4Cn7w "wikilink")
     -   公開日: 2026-02-07
-    -   視聴数: 102,589
+    -   視聴数: 102,975
     -   **いいね数: 4,364**
     -   出演者: 
     - [![](https://img.youtube.com/vi/nRc30C4Cn7w/hqdefault.jpg)](https://www.youtube.com/watch?v=nRc30C4Cn7w)
@@ -46,19 +46,19 @@
 ## 時系列データ
 #### [2026年02月](videos/202602 "wikilink")
 
--   動画数: 8, 視聴数: 1,068,129, いいね数: 42,076
+-   動画数: 8, 視聴数: 1,072,383, いいね数: 42,097
 
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 4, 視聴数: 859,987, いいね数: 32,461
+-   動画数: 4, 視聴数: 861,780, いいね数: 32,467
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 5, 視聴数: 1,191,972, いいね数: 42,810
+-   動画数: 5, 視聴数: 1,193,709, いいね数: 42,812
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 3, 視聴数: 762,199, いいね数: 30,779
+-   動画数: 3, 視聴数: 762,794, いいね数: 30,779
 
 ---
-2026-02-27 02:00
+2026-02-27 11:00
