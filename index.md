@@ -1,31 +1,31 @@
 # ReHac9 最近の動画
 1.  [【石丸伸二 vs 熊本県八代市長】都知事選、そして衆院選へ…挑戦の舞台裏を語る【ReHac9Quest 小野泰輔】](/rehac9_fan/ids/kw3I39Hk5k4 "wikilink")
     -   公開日: 2026-03-15
-    -   視聴数: 64,989
-    -   **いいね数: 4,021**
+    -   視聴数: 69,455
+    -   **いいね数: 4,056**
     -   出演者: 
     - [![](https://img.youtube.com/vi/kw3I39Hk5k4/hqdefault.jpg)](https://www.youtube.com/watch?v=kw3I39Hk5k4)
 1.  [【石丸伸二vs熊本県八代市長】すべての国会議員を敵に回す覚悟、その正義感のルーツに迫る【ReHac9Quest 小野泰輔】](/rehac9_fan/ids/a-RPU-3rlS0 "wikilink")
     -   公開日: 2026-03-08
-    -   視聴数: 151,875
-    -   **いいね数: 6,798**
+    -   視聴数: 154,801
+    -   **いいね数: 6,810**
     -   出演者: 
     - [![](https://img.youtube.com/vi/a-RPU-3rlS0/hqdefault.jpg)](https://www.youtube.com/watch?v=a-RPU-3rlS0)
 1.  [【ReHac9討論会】福岡県宮若市長選　ネット討論会【石丸伸二vsしおかわ秀敏vsしばた裕美子】](/rehac9_fan/ids/KB73w-5tzTY "wikilink")
     -   公開日: 2026-03-01
-    -   視聴数: 121,559
+    -   視聴数: 122,590
     -   **いいね数: 4,504**
     -   出演者: 
     - [![](https://img.youtube.com/vi/KB73w-5tzTY/hqdefault.jpg)](https://www.youtube.com/watch?v=KB73w-5tzTY)
 1.  [【高橋弘樹vs重厚長大産業３代目vsロボットベンチャー CEO】現場の熟練者とスタートアップはどう向き合うのか？工業地帯に足りないものを本音で語る【ReHac９エコノミー　新北九州工業地帯SP】](/rehac9_fan/ids/W-1CjtsDgxw "wikilink")
     -   公開日: 2026-02-23
-    -   視聴数: 104,633
+    -   視聴数: 104,883
     -   **いいね数: 2,030**
     -   出演者: 
     - [![](https://img.youtube.com/vi/W-1CjtsDgxw/hqdefault.jpg)](https://www.youtube.com/watch?v=W-1CjtsDgxw)
 1.  [【石丸伸二vs福岡ローカルタレント】うどんの麺が減らない？その真相…屋台からスポーツまで福岡の魅力をとことん語り尽くす【ReHac９Quest 中島浩二】](/rehac9_fan/ids/0YwyJEb14DM "wikilink")
     -   公開日: 2026-02-17
-    -   視聴数: 155,614
+    -   視聴数: 156,005
     -   **いいね数: 5,703**
     -   出演者: 
     - [![](https://img.youtube.com/vi/0YwyJEb14DM/hqdefault.jpg)](https://www.youtube.com/watch?v=0YwyJEb14DM)
@@ -46,23 +46,23 @@
 ## 時系列データ
 #### [2026年03月](videos/202603 "wikilink")
 
--   動画数: 3, 視聴数: 338,423, いいね数: 15,323
+-   動画数: 3, 視聴数: 346,846, いいね数: 15,370
 
 #### [2026年02月](videos/202602 "wikilink")
 
--   動画数: 8, 視聴数: 1,169,275, いいね数: 42,761
+-   動画数: 8, 視聴数: 1,172,044, いいね数: 42,762
 
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 4, 視聴数: 898,952, いいね数: 32,708
+-   動画数: 4, 視聴数: 900,227, いいね数: 32,711
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 5, 視聴数: 1,225,973, いいね数: 42,892
+-   動画数: 5, 視聴数: 1,226,850, いいね数: 42,896
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 3, 視聴数: 779,773, いいね数: 30,792
+-   動画数: 3, 視聴数: 780,785, いいね数: 30,793
 
 ---
-2026-03-18 02:00
+2026-03-18 11:00
