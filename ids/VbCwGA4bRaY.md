@@ -1,6 +1,6 @@
 ### [【ReHac9 × TNC】テレビ西日本とコラボでひろゆきMC！福岡の新たなビジネス拠点CICFukuokaとは【ReHac9TV】](https://www.youtube.com/watch?v=VbCwGA4bRaY)
 [![](https://img.youtube.com/vi/VbCwGA4bRaY/sddefault.jpg)](https://www.youtube.com/watch?v=VbCwGA4bRaY)
 -   公開日: 2026-03-31
--   視聴数: 105,302
--   **いいね数: 2,953**
+-   視聴数: 108,429
+-   **いいね数: 2,987**
 -   出演者: 
