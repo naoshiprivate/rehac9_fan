@@ -1,31 +1,31 @@
+1.  [【ReHac9討論会】佐賀県吉野ヶ里町長選 ネット討論会【石丸伸二vsしょうじま信一郎vsなかほり博智vsつるえみこ】](/rehac9_fan/ids/OMOuZwRkIx8 "wikilink")
+    -   公開日: 2026-04-04
+    -   視聴数: 14,911
+    -   **いいね数: 1,514**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/OMOuZwRkIx8/hqdefault.jpg)](https://www.youtube.com/watch?v=OMOuZwRkIx8)
+1.  [【ReHac9討論会】佐賀県有田町長選 ネット討論会【石丸伸二vs松尾よしあきvs栗原繁vs本土源太郎】](/rehac9_fan/ids/svXEVIyAsgM "wikilink")
+    -   公開日: 2026-04-04
+    -   視聴数: 24,076
+    -   **いいね数: 2,144**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/svXEVIyAsgM/hqdefault.jpg)](https://www.youtube.com/watch?v=svXEVIyAsgM)
 1.  [【ReHac9 × TNC】テレビ西日本とコラボでひろゆきMC！企業3社が語る福岡の食のグローバル戦略【ReHac9TV】](/rehac9_fan/ids/lx0OdVBpReU "wikilink")
     -   公開日: 2026-04-03
-    -   視聴数: 36,100
-    -   **いいね数: 1,211**
+    -   視聴数: 43,961
+    -   **いいね数: 1,335**
     -   出演者: 
     - [![](https://img.youtube.com/vi/lx0OdVBpReU/hqdefault.jpg)](https://www.youtube.com/watch?v=lx0OdVBpReU)
 1.  [【衆院選2026】あつまれ九州の中道！落選の森…まったり緊急生配信【中谷一馬vs長友よしひろvsにえだ元氣vs丸尾けいすけvs石丸伸二】](/rehac9_fan/ids/M7d6cAjLY7g "wikilink")
     -   公開日: 2026-03-31
-    -   視聴数: 68,118
-    -   **いいね数: 3,655**
+    -   視聴数: 68,684
+    -   **いいね数: 3,671**
     -   出演者: 
     - [![](https://img.youtube.com/vi/M7d6cAjLY7g/hqdefault.jpg)](https://www.youtube.com/watch?v=M7d6cAjLY7g)
 1.  [【ReHac9 × TNC】テレビ西日本とコラボでひろゆきMC！福岡の新たなビジネス拠点CICFukuokaとは【ReHac9TV】](/rehac9_fan/ids/VbCwGA4bRaY "wikilink")
     -   公開日: 2026-03-31
-    -   視聴数: 124,067
-    -   **いいね数: 3,165**
+    -   視聴数: 128,346
+    -   **いいね数: 3,198**
     -   出演者: 
     - [![](https://img.youtube.com/vi/VbCwGA4bRaY/hqdefault.jpg)](https://www.youtube.com/watch?v=VbCwGA4bRaY)
-1.  [【ReHac9討論会】沖縄県金武町長選 ネット討論会【石丸伸二vs山川むねひと】](/rehac9_fan/ids/HJazeqqWXFA "wikilink")
-    -   公開日: 2026-03-22
-    -   視聴数: 60,993
-    -   **いいね数: 3,319**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/HJazeqqWXFA/hqdefault.jpg)](https://www.youtube.com/watch?v=HJazeqqWXFA)
-1.  [【衆院選2026】あつまれ！当選の森in福岡…今後どうする？まったり緊急生配信【井上たかひろvs石丸伸二】](/rehac9_fan/ids/xoypmxHZoCM "wikilink")
-    -   公開日: 2026-03-21
-    -   視聴数: 68,485
-    -   **いいね数: 5,342**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/xoypmxHZoCM/hqdefault.jpg)](https://www.youtube.com/watch?v=xoypmxHZoCM)
 

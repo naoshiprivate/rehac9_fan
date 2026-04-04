@@ -1,6 +1,6 @@
 ### [【石丸伸二 vs 熊本県八代市長】都知事選、そして衆院選へ…挑戦の舞台裏を語る【ReHac9Quest 小野泰輔】](https://www.youtube.com/watch?v=kw3I39Hk5k4)
 [![](https://img.youtube.com/vi/kw3I39Hk5k4/sddefault.jpg)](https://www.youtube.com/watch?v=kw3I39Hk5k4)
 -   公開日: 2026-03-15
--   視聴数: 99,903
--   **いいね数: 4,464**
+-   視聴数: 100,137
+-   **いいね数: 4,467**
 -   出演者: 
