@@ -1,31 +1,31 @@
 1.  [【ReHac9討論会】大阪府豊中市長選 ネット討論会【石丸伸二・東修平vs市橋ひろしvs長内しげきvs中野こうきvs盲人ウエカジ】](/rehac9_fan/ids/6AtjX1_HVfY "wikilink")
     -   公開日: 2026-04-08
-    -   視聴数: 47,137
-    -   **いいね数: 2,943**
+    -   視聴数: 59,642
+    -   **いいね数: 3,298**
     -   出演者: 
     - [![](https://img.youtube.com/vi/6AtjX1_HVfY/hqdefault.jpg)](https://www.youtube.com/watch?v=6AtjX1_HVfY)
 1.  [【ReHac9討論会】福岡県嘉麻市長選 ネット討論会【石丸伸二vsあかま幸弘vsさえきのりこ】](/rehac9_fan/ids/GhUFcBF3ZZw "wikilink")
     -   公開日: 2026-04-07
-    -   視聴数: 35,588
-    -   **いいね数: 1,899**
+    -   視聴数: 36,936
+    -   **いいね数: 1,936**
     -   出演者: 
     - [![](https://img.youtube.com/vi/GhUFcBF3ZZw/hqdefault.jpg)](https://www.youtube.com/watch?v=GhUFcBF3ZZw)
 1.  [【ReHac9討論会】佐賀県伊万里市長選 ネット討論会【石丸伸二vs加藤なつみ】](/rehac9_fan/ids/fXjMzBCJQyQ "wikilink")
     -   公開日: 2026-04-07
-    -   視聴数: 49,976
-    -   **いいね数: 3,151**
+    -   視聴数: 53,042
+    -   **いいね数: 3,191**
     -   出演者: 
     - [![](https://img.youtube.com/vi/fXjMzBCJQyQ/hqdefault.jpg)](https://www.youtube.com/watch?v=fXjMzBCJQyQ)
 1.  [【ReHac9討論会】佐賀県吉野ヶ里町長選 ネット討論会【石丸伸二vsしょうじま信一郎vsなかほり博智vsつるえみこ】](/rehac9_fan/ids/OMOuZwRkIx8 "wikilink")
     -   公開日: 2026-04-04
-    -   視聴数: 36,297
-    -   **いいね数: 2,183**
+    -   視聴数: 36,866
+    -   **いいね数: 2,197**
     -   出演者: 
     - [![](https://img.youtube.com/vi/OMOuZwRkIx8/hqdefault.jpg)](https://www.youtube.com/watch?v=OMOuZwRkIx8)
 1.  [【ReHac9討論会】佐賀県有田町長選 ネット討論会【石丸伸二vs松尾よしあきvs栗原繁vs本土源太郎】](/rehac9_fan/ids/svXEVIyAsgM "wikilink")
     -   公開日: 2026-04-04
-    -   視聴数: 37,996
-    -   **いいね数: 2,660**
+    -   視聴数: 38,655
+    -   **いいね数: 2,667**
     -   出演者: 
     - [![](https://img.youtube.com/vi/svXEVIyAsgM/hqdefault.jpg)](https://www.youtube.com/watch?v=svXEVIyAsgM)
 

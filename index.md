@@ -1,32 +1,32 @@
 # ReHac9 最近の動画
 1.  [【ReHac9討論会】大阪府豊中市長選 ネット討論会【石丸伸二・東修平vs市橋ひろしvs長内しげきvs中野こうきvs盲人ウエカジ】](/rehac9_fan/ids/6AtjX1_HVfY "wikilink")
     -   公開日: 2026-04-08
-    -   視聴数: 47,137
-    -   **いいね数: 2,943**
+    -   視聴数: 59,642
+    -   **いいね数: 3,298**
     -   出演者: 
     - [![](https://img.youtube.com/vi/6AtjX1_HVfY/hqdefault.jpg)](https://www.youtube.com/watch?v=6AtjX1_HVfY)
 1.  [【ReHac9討論会】福岡県嘉麻市長選 ネット討論会【石丸伸二vsあかま幸弘vsさえきのりこ】](/rehac9_fan/ids/GhUFcBF3ZZw "wikilink")
     -   公開日: 2026-04-07
-    -   視聴数: 35,588
-    -   **いいね数: 1,899**
+    -   視聴数: 36,936
+    -   **いいね数: 1,936**
     -   出演者: 
     - [![](https://img.youtube.com/vi/GhUFcBF3ZZw/hqdefault.jpg)](https://www.youtube.com/watch?v=GhUFcBF3ZZw)
 1.  [【ReHac9討論会】佐賀県伊万里市長選 ネット討論会【石丸伸二vs加藤なつみ】](/rehac9_fan/ids/fXjMzBCJQyQ "wikilink")
     -   公開日: 2026-04-07
-    -   視聴数: 49,976
-    -   **いいね数: 3,151**
+    -   視聴数: 53,042
+    -   **いいね数: 3,191**
     -   出演者: 
     - [![](https://img.youtube.com/vi/fXjMzBCJQyQ/hqdefault.jpg)](https://www.youtube.com/watch?v=fXjMzBCJQyQ)
 1.  [【ReHac9討論会】佐賀県吉野ヶ里町長選 ネット討論会【石丸伸二vsしょうじま信一郎vsなかほり博智vsつるえみこ】](/rehac9_fan/ids/OMOuZwRkIx8 "wikilink")
     -   公開日: 2026-04-04
-    -   視聴数: 36,297
-    -   **いいね数: 2,183**
+    -   視聴数: 36,866
+    -   **いいね数: 2,197**
     -   出演者: 
     - [![](https://img.youtube.com/vi/OMOuZwRkIx8/hqdefault.jpg)](https://www.youtube.com/watch?v=OMOuZwRkIx8)
 1.  [【ReHac9討論会】佐賀県有田町長選 ネット討論会【石丸伸二vs松尾よしあきvs栗原繁vs本土源太郎】](/rehac9_fan/ids/svXEVIyAsgM "wikilink")
     -   公開日: 2026-04-04
-    -   視聴数: 37,996
-    -   **いいね数: 2,660**
+    -   視聴数: 38,655
+    -   **いいね数: 2,667**
     -   出演者: 
     - [![](https://img.youtube.com/vi/svXEVIyAsgM/hqdefault.jpg)](https://www.youtube.com/watch?v=svXEVIyAsgM)
 
@@ -46,27 +46,27 @@
 ## 時系列データ
 #### [2026年04月](videos/202604 "wikilink")
 
--   動画数: 6, 視聴数: 270,250, いいね数: 14,466
+-   動画数: 6, 視聴数: 289,979, いいね数: 14,943
 
 #### [2026年03月](videos/202603 "wikilink")
 
--   動画数: 7, 視聴数: 780,505, いいね数: 31,728
+-   動画数: 7, 視聴数: 783,371, いいね数: 31,748
 
 #### [2026年02月](videos/202602 "wikilink")
 
--   動画数: 8, 視聴数: 1,242,772, いいね数: 43,008
+-   動画数: 8, 視聴数: 1,243,807, いいね数: 43,009
 
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 4, 視聴数: 925,921, いいね数: 32,822
+-   動画数: 4, 視聴数: 926,971, いいね数: 32,826
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 5, 視聴数: 1,262,045, いいね数: 42,935
+-   動画数: 5, 視聴数: 1,262,675, いいね数: 42,934
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 3, 視聴数: 796,799, いいね数: 30,804
+-   動画数: 3, 視聴数: 797,005, いいね数: 30,804
 
 ---
-2026-04-09 11:00
+2026-04-10 02:00
