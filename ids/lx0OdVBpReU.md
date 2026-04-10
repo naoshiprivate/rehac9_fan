@@ -1,6 +1,6 @@
 ### [【ReHac9 × TNC】テレビ西日本とコラボでひろゆきMC！企業3社が語る福岡の食のグローバル戦略【ReHac9TV】](https://www.youtube.com/watch?v=lx0OdVBpReU)
 [![](https://img.youtube.com/vi/lx0OdVBpReU/sddefault.jpg)](https://www.youtube.com/watch?v=lx0OdVBpReU)
 -   公開日: 2026-04-03
--   視聴数: 64,838
--   **いいね数: 1,654**
+-   視聴数: 65,445
+-   **いいね数: 1,657**
 -   出演者: 
