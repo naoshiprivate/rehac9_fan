@@ -1,6 +1,6 @@
 ### [【高橋弘樹 vs 人気漫画家】「元寇」を漫画にするという挑戦の裏側【ReHac9 Questたかぎ七彦】](https://www.youtube.com/watch?v=sIQ6Y2iAoZs)
 [![](https://img.youtube.com/vi/sIQ6Y2iAoZs/sddefault.jpg)](https://www.youtube.com/watch?v=sIQ6Y2iAoZs)
 -   公開日: 2026-05-03
--   視聴数: 84,105
--   **いいね数: 1,475**
+-   視聴数: 87,370
+-   **いいね数: 1,512**
 -   出演者: 
