@@ -1,32 +1,32 @@
 # ReHac9 最近の動画
 1.  [【井手らっきょvsスザンヌ】昭和バラエティの過激すぎる舞台裏【ReHac9Quest in熊本】](/rehac9_fan/ids/t27K7ZqjJVE "wikilink")
     -   公開日: 2026-05-09
-    -   視聴数: 21,223
-    -   **いいね数: 875**
+    -   視聴数: 22,268
+    -   **いいね数: 899**
     -   出演者: 
     - [![](https://img.youtube.com/vi/t27K7ZqjJVE/hqdefault.jpg)](https://www.youtube.com/watch?v=t27K7ZqjJVE)
 1.  [【高橋弘樹 vs 人気漫画家】「元寇」を漫画にするという挑戦の裏側【ReHac9 Questたかぎ七彦】](/rehac9_fan/ids/sIQ6Y2iAoZs "wikilink")
     -   公開日: 2026-05-03
-    -   視聴数: 91,790
-    -   **いいね数: 1,540**
+    -   視聴数: 93,533
+    -   **いいね数: 1,551**
     -   出演者: 
     - [![](https://img.youtube.com/vi/sIQ6Y2iAoZs/hqdefault.jpg)](https://www.youtube.com/watch?v=sIQ6Y2iAoZs)
 1.  [【※音声修正版】【ReHac9討論会】愛媛県西条市長選 ネット討論会【石丸伸二vs越智みつよしvs高橋としあき】](/rehac9_fan/ids/6ny6BEwGoek "wikilink")
     -   公開日: 2026-04-28
-    -   視聴数: 31,690
-    -   **いいね数: 1,190**
+    -   視聴数: 32,067
+    -   **いいね数: 1,196**
     -   出演者: 
     - [![](https://img.youtube.com/vi/6ny6BEwGoek/hqdefault.jpg)](https://www.youtube.com/watch?v=6ny6BEwGoek)
 1.  [【ReHac9討論会】愛媛県西条市長選 ネット討論会【石丸伸二vs越智みつよしvs高橋としあき】](/rehac9_fan/ids/fU0w4eEtilo "wikilink")
     -   公開日: 2026-04-27
-    -   視聴数: 37,763
+    -   視聴数: 37,791
     -   **いいね数: 2,061**
     -   出演者: 
     - [![](https://img.youtube.com/vi/fU0w4eEtilo/hqdefault.jpg)](https://www.youtube.com/watch?v=fU0w4eEtilo)
 1.  [【ReHac9Quest 大阪vs福岡】副首都構想は！？まったり緊急生配信【高島宗一郎vs吉村洋文vs石丸伸二】](/rehac9_fan/ids/TX9zLLgSbtc "wikilink")
     -   公開日: 2026-04-25
-    -   視聴数: 371,415
-    -   **いいね数: 14,000**
+    -   視聴数: 372,504
+    -   **いいね数: 14,012**
     -   出演者: 
     - [![](https://img.youtube.com/vi/TX9zLLgSbtc/hqdefault.jpg)](https://www.youtube.com/watch?v=TX9zLLgSbtc)
 
@@ -46,31 +46,31 @@
 ## 時系列データ
 #### [2026年05月](videos/202605 "wikilink")
 
--   動画数: 2, 視聴数: 113,013, いいね数: 2,415
+-   動画数: 2, 視聴数: 115,801, いいね数: 2,450
 
 #### [2026年04月](videos/202604 "wikilink")
 
--   動画数: 11, 視聴数: 927,225, いいね数: 38,098
+-   動画数: 11, 視聴数: 928,983, いいね数: 38,123
 
 #### [2026年03月](videos/202603 "wikilink")
 
--   動画数: 7, 視聴数: 872,732, いいね数: 32,140
+-   動画数: 7, 視聴数: 873,305, いいね数: 32,141
 
 #### [2026年02月](videos/202602 "wikilink")
 
--   動画数: 8, 視聴数: 1,289,877, いいね数: 43,100
+-   動画数: 8, 視聴数: 1,290,100, いいね数: 43,104
 
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 4, 視聴数: 954,812, いいね数: 32,980
+-   動画数: 4, 視聴数: 955,055, いいね数: 32,981
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 5, 視聴数: 1,309,713, いいね数: 43,032
+-   動画数: 5, 視聴数: 1,310,389, いいね数: 43,034
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 3, 視聴数: 810,685, いいね数: 30,824
+-   動画数: 3, 視聴数: 810,825, いいね数: 30,823
 
 ---
-2026-05-15 11:00
+2026-05-16 02:00
