@@ -1,31 +1,31 @@
-1.  [【高橋弘樹 vs 人気漫画家】取材資料を大公開！漫画家は儲かるのか？【ReHac9 Questたかぎ七彦】](/rehac9_fan/ids/zGgeihQwiHQ "wikilink")
+1.  [【ReHac9討論会】長崎県南島原市長選 ネット討論会【石丸伸二vs相川武利vsくまべ和久】](/rehac9_fan/ids/EhghKEuVJSg "wikilink")
+    -   公開日: 2026-06-01
+    -   視聴数: 10,767
+    -   **いいね数: 1,393**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/EhghKEuVJSg/hqdefault.jpg)](https://www.youtube.com/watch?v=EhghKEuVJSg)
+1.  [【ReHac9討論会】広島県大竹市長選 ネット討論会【石丸伸二vs中野ともひろ】](/rehac9_fan/ids/r1OB_so7LBw "wikilink")
+    -   公開日: 2026-06-01
+    -   視聴数: 23,254
+    -   **いいね数: 2,729**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/r1OB_so7LBw/hqdefault.jpg)](https://www.youtube.com/watch?v=r1OB_so7LBw)
+1.  [【高橋弘樹 vs 人気漫画家】漫画家は儲かるのか？印税はいくら？【ReHac9 Questたかぎ七彦】](/rehac9_fan/ids/zGgeihQwiHQ "wikilink")
     -   公開日: 2026-05-31
-    -   視聴数: 11,331
-    -   **いいね数: 381**
+    -   視聴数: 18,127
+    -   **いいね数: 506**
     -   出演者: 
     - [![](https://img.youtube.com/vi/zGgeihQwiHQ/hqdefault.jpg)](https://www.youtube.com/watch?v=zGgeihQwiHQ)
 1.  [【井手らっきょvsスザンヌ】昭和バラエティの過激すぎる舞台裏【ReHac9Quest in熊本】](/rehac9_fan/ids/t27K7ZqjJVE "wikilink")
     -   公開日: 2026-05-09
-    -   視聴数: 33,567
-    -   **いいね数: 1,063**
+    -   視聴数: 34,255
+    -   **いいね数: 1,071**
     -   出演者: 
     - [![](https://img.youtube.com/vi/t27K7ZqjJVE/hqdefault.jpg)](https://www.youtube.com/watch?v=t27K7ZqjJVE)
 1.  [【高橋弘樹 vs 人気漫画家】「元寇」を漫画にするという挑戦の裏側【ReHac9 Questたかぎ七彦】](/rehac9_fan/ids/sIQ6Y2iAoZs "wikilink")
     -   公開日: 2026-05-03
-    -   視聴数: 116,919
-    -   **いいね数: 1,804**
+    -   視聴数: 118,888
+    -   **いいね数: 1,836**
     -   出演者: 
     - [![](https://img.youtube.com/vi/sIQ6Y2iAoZs/hqdefault.jpg)](https://www.youtube.com/watch?v=sIQ6Y2iAoZs)
-1.  [【※音声修正版】【ReHac9討論会】愛媛県西条市長選 ネット討論会【石丸伸二vs越智みつよしvs高橋としあき】](/rehac9_fan/ids/6ny6BEwGoek "wikilink")
-    -   公開日: 2026-04-28
-    -   視聴数: 36,558
-    -   **いいね数: 1,235**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/6ny6BEwGoek/hqdefault.jpg)](https://www.youtube.com/watch?v=6ny6BEwGoek)
-1.  [【ReHac9討論会】愛媛県西条市長選 ネット討論会【石丸伸二vs越智みつよしvs高橋としあき】](/rehac9_fan/ids/fU0w4eEtilo "wikilink")
-    -   公開日: 2026-04-27
-    -   視聴数: 38,636
-    -   **いいね数: 2,068**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/fU0w4eEtilo/hqdefault.jpg)](https://www.youtube.com/watch?v=fU0w4eEtilo)
 
