@@ -1,34 +1,34 @@
 # ReHac9 最近の動画
+1.  [【ReHac9討論会】兵庫県加古川市長選 ネット討論会【石丸伸二vs岡田やすひろvs橋本みなみvs久本和明】](/rehac9_fan/ids/b2VI0q3erk0 "wikilink")
+    -   公開日: 2026-06-18
+    -   視聴数: 44,610
+    -   **いいね数: 1,953**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/b2VI0q3erk0/hqdefault.jpg)](https://www.youtube.com/watch?v=b2VI0q3erk0)
 1.  [【※映像・音声修正版】【石丸伸二vs福岡県中間市長】台所から始める行政コスト削減とは？【ReHac9Quest福田健次】](/rehac9_fan/ids/qDPwNSNQKtE "wikilink")
     -   公開日: 2026-06-18
-    -   視聴数: 785
-    -   **いいね数: 210**
+    -   視聴数: 16,513
+    -   **いいね数: 1,677**
     -   出演者: 
     - [![](https://img.youtube.com/vi/qDPwNSNQKtE/hqdefault.jpg)](https://www.youtube.com/watch?v=qDPwNSNQKtE)
-1.  [【石丸伸二vs福岡県中間市長】台所から始める行政コスト削減とは？【ReHac9Quest福田健次】](/rehac9_fan/ids/XZhHfycqTNA "wikilink")
+1.  [※注：映像音声に不具合あり【石丸伸二vs福岡県中間市長】台所から始める行政コスト削減とは？【ReHac9Quest福田健次】](/rehac9_fan/ids/XZhHfycqTNA "wikilink")
     -   公開日: 2026-06-17
-    -   視聴数: 43,845
-    -   **いいね数: 3,380**
+    -   視聴数: 50,856
+    -   **いいね数: 3,624**
     -   出演者: 
     - [![](https://img.youtube.com/vi/XZhHfycqTNA/hqdefault.jpg)](https://www.youtube.com/watch?v=XZhHfycqTNA)
 1.  [【石丸伸二vs元・宮崎県知事】相部屋の留置所で何が…仰天エピソード大連発【ReHac9Quest東国原英夫】](/rehac9_fan/ids/NDcJBCpBMxE "wikilink")
     -   公開日: 2026-06-13
-    -   視聴数: 182,924
-    -   **いいね数: 7,580**
+    -   視聴数: 191,983
+    -   **いいね数: 7,728**
     -   出演者: 
     - [![](https://img.youtube.com/vi/NDcJBCpBMxE/hqdefault.jpg)](https://www.youtube.com/watch?v=NDcJBCpBMxE)
 1.  [【井手らっきょ vs スザンヌ】スザンヌ母キャサリンも登場で熊本移住本音トーク【ReHac９Quest in熊本】](/rehac9_fan/ids/ci9Iyn-XFB8 "wikilink")
     -   公開日: 2026-06-12
-    -   視聴数: 51,352
-    -   **いいね数: 1,071**
+    -   視聴数: 54,263
+    -   **いいね数: 1,105**
     -   出演者: 
     - [![](https://img.youtube.com/vi/ci9Iyn-XFB8/hqdefault.jpg)](https://www.youtube.com/watch?v=ci9Iyn-XFB8)
-1.  [【石丸伸二vsチャンカワイ相方】九州を知り尽くす温泉ソムリエが語る地域の魅力【ReHac9Questえとう窓口】](/rehac9_fan/ids/i0AF4oTSkT0 "wikilink")
-    -   公開日: 2026-06-11
-    -   視聴数: 80,714
-    -   **いいね数: 5,777**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/i0AF4oTSkT0/hqdefault.jpg)](https://www.youtube.com/watch?v=i0AF4oTSkT0)
 
 # ReHac9の人気動画
 ## 最近の人気動画
@@ -46,35 +46,35 @@
 ## 時系列データ
 #### [2026年06月](videos/202606 "wikilink")
 
--   動画数: 8, 視聴数: 504,420, いいね数: 28,289
+-   動画数: 9, 視聴数: 585,656, いいね数: 32,160
 
 #### [2026年05月](videos/202605 "wikilink")
 
--   動画数: 3, 視聴数: 278,584, いいね数: 4,502
+-   動画数: 3, 視聴数: 281,755, いいね数: 4,526
 
 #### [2026年04月](videos/202604 "wikilink")
 
--   動画数: 11, 視聴数: 981,863, いいね数: 38,543
+-   動画数: 11, 視聴数: 983,483, いいね数: 38,550
 
 #### [2026年03月](videos/202603 "wikilink")
 
--   動画数: 7, 視聴数: 901,653, いいね数: 32,318
+-   動画数: 7, 視聴数: 902,351, いいね数: 32,322
 
 #### [2026年02月](videos/202602 "wikilink")
 
--   動画数: 8, 視聴数: 1,301,032, いいね数: 43,153
+-   動画数: 8, 視聴数: 1,301,378, いいね数: 43,156
 
 #### [2026年01月](videos/202601 "wikilink")
 
--   動画数: 4, 視聴数: 967,941, いいね数: 33,100
+-   動画数: 4, 視聴数: 968,374, いいね数: 33,105
 
 #### [2025年12月](videos/202512 "wikilink")
 
--   動画数: 5, 視聴数: 1,329,054, いいね数: 43,111
+-   動画数: 5, 視聴数: 1,329,441, いいね数: 43,112
 
 #### [2025年11月](videos/202511 "wikilink")
 
--   動画数: 3, 視聴数: 817,623, いいね数: 30,845
+-   動画数: 3, 視聴数: 817,784, いいね数: 30,842
 
 ---
-2026-06-18 11:00
+2026-06-19 11:00
