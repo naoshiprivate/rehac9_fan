@@ -1,6 +1,6 @@
 ### [【井手らっきょ vs スザンヌ】スザンヌ母キャサリンも登場で熊本移住本音トーク【ReHac９Quest in熊本】](https://www.youtube.com/watch?v=ci9Iyn-XFB8)
 [![](https://img.youtube.com/vi/ci9Iyn-XFB8/sddefault.jpg)](https://www.youtube.com/watch?v=ci9Iyn-XFB8)
 -   公開日: 2026-06-12
--   視聴数: 66,315
--   **いいね数: 1,262**
+-   視聴数: 66,544
+-   **いいね数: 1,267**
 -   出演者: 
