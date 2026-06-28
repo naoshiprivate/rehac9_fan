@@ -1,31 +1,31 @@
 1.  [【石丸伸二vs九州名物CEO】はっちゃんを支えた漁師の父の教えとは【ReHac9Quest岩本初恵】](/rehac9_fan/ids/Nh0nSF-hMmU "wikilink")
     -   公開日: 2026-06-24
-    -   視聴数: 71,817
-    -   **いいね数: 4,502**
+    -   視聴数: 72,700
+    -   **いいね数: 4,523**
     -   出演者: 
     - [![](https://img.youtube.com/vi/Nh0nSF-hMmU/hqdefault.jpg)](https://www.youtube.com/watch?v=Nh0nSF-hMmU)
 1.  [【石丸伸二vs元・宮崎県知事】「現場と挨拶どっちが大事ですか？」就任翌日から大騒動のワケ【ReHac9Quest東国原英夫】](/rehac9_fan/ids/urjzJ_1oQrU "wikilink")
     -   公開日: 2026-06-20
-    -   視聴数: 128,765
-    -   **いいね数: 5,610**
+    -   視聴数: 129,692
+    -   **いいね数: 5,620**
     -   出演者: 
     - [![](https://img.youtube.com/vi/urjzJ_1oQrU/hqdefault.jpg)](https://www.youtube.com/watch?v=urjzJ_1oQrU)
 1.  [【石丸伸二vs九州大学主幹教授】GDPでは見えにくい豊かさの指標とは【ReHac9SP 馬奈木俊介】](/rehac9_fan/ids/0zqtcu5GpsE "wikilink")
     -   公開日: 2026-06-19
-    -   視聴数: 49,103
-    -   **いいね数: 3,584**
+    -   視聴数: 49,411
+    -   **いいね数: 3,597**
     -   出演者: 
     - [![](https://img.youtube.com/vi/0zqtcu5GpsE/hqdefault.jpg)](https://www.youtube.com/watch?v=0zqtcu5GpsE)
 1.  [【ReHac9討論会】兵庫県加古川市長選 ネット討論会【石丸伸二vs岡田やすひろvs橋本みなみvs久本和明】](/rehac9_fan/ids/b2VI0q3erk0 "wikilink")
     -   公開日: 2026-06-18
-    -   視聴数: 101,672
-    -   **いいね数: 2,645**
+    -   視聴数: 103,007
+    -   **いいね数: 2,649**
     -   出演者: 
     - [![](https://img.youtube.com/vi/b2VI0q3erk0/hqdefault.jpg)](https://www.youtube.com/watch?v=b2VI0q3erk0)
 1.  [【※映像・音声修正版】【石丸伸二vs福岡県中間市長】台所から始める行政コスト削減とは？【ReHac9Quest福田健次】](/rehac9_fan/ids/qDPwNSNQKtE "wikilink")
     -   公開日: 2026-06-18
-    -   視聴数: 43,187
-    -   **いいね数: 2,336**
+    -   視聴数: 43,462
+    -   **いいね数: 2,340**
     -   出演者: 
     - [![](https://img.youtube.com/vi/qDPwNSNQKtE/hqdefault.jpg)](https://www.youtube.com/watch?v=qDPwNSNQKtE)
 
