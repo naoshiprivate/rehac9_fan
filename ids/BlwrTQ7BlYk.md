@@ -1,6 +1,6 @@
 ### [【石丸伸二vs九州大学主幹教授】社会課題を全て数値化して見えてくるものとは【ReHac9Quest馬奈木俊介】](https://www.youtube.com/watch?v=BlwrTQ7BlYk)
 [![](https://img.youtube.com/vi/BlwrTQ7BlYk/sddefault.jpg)](https://www.youtube.com/watch?v=BlwrTQ7BlYk)
 -   公開日: 2026-06-28
--   視聴数: 27,153
--   **いいね数: 2,706**
+-   視聴数: 33,224
+-   **いいね数: 2,919**
 -   出演者: 
