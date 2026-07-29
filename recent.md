@@ -1,31 +1,31 @@
+1.  [【石丸伸二vs世界の社会課題】ソーシャルビジネスで2030年に売上目標500億円を目指す会社とは【ReHac9Quest 田口一成】](/rehac9_fan/ids/NOwRUvPcyyw "wikilink")
+    -   公開日: 2026-07-28
+    -   視聴数: 42,969
+    -   **いいね数: 3,331**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/NOwRUvPcyyw/hqdefault.jpg)](https://www.youtube.com/watch?v=NOwRUvPcyyw)
+1.  [【石丸伸二vs地方移住】福岡県には関東地方のほぼ全てがある！？【ReHac9Quest 早川裕章】](/rehac9_fan/ids/UROPNPHbx38 "wikilink")
+    -   公開日: 2026-07-24
+    -   視聴数: 53,513
+    -   **いいね数: 3,324**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/UROPNPHbx38/hqdefault.jpg)](https://www.youtube.com/watch?v=UROPNPHbx38)
+1.  [【石丸伸二×大学改革】150年前の大学モデルは限界？AIで地方大学を残す新たな仕組みとは【ReHac9Quest 金麗雄・吉田大作】](/rehac9_fan/ids/6a0yO6b6Tu8 "wikilink")
+    -   公開日: 2026-07-19
+    -   視聴数: 31,767
+    -   **いいね数: 2,818**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/6a0yO6b6Tu8/hqdefault.jpg)](https://www.youtube.com/watch?v=6a0yO6b6Tu8)
+1.  [【石丸伸二vs九州狂言師】はじめてでもわかる狂言の世界【ReHac9Quest野村万禄】](/rehac9_fan/ids/pxTcpMtddOc "wikilink")
+    -   公開日: 2026-07-17
+    -   視聴数: 37,948
+    -   **いいね数: 3,038**
+    -   出演者: 
+    - [![](https://img.youtube.com/vi/pxTcpMtddOc/hqdefault.jpg)](https://www.youtube.com/watch?v=pxTcpMtddOc)
 1.  [【ReHac9生配信】半年振り返り！まったり雑談生配信【石丸伸二ReHac9支局長】](/rehac9_fan/ids/jASLUwz7uuk "wikilink")
     -   公開日: 2026-07-12
-    -   視聴数: 102,752
-    -   **いいね数: 5,781**
+    -   視聴数: 117,722
+    -   **いいね数: 6,078**
     -   出演者: 
     - [![](https://img.youtube.com/vi/jASLUwz7uuk/hqdefault.jpg)](https://www.youtube.com/watch?v=jASLUwz7uuk)
-1.  [【石丸伸二vs長崎県大村市長】50年連続人口増加の自治体の課題とは？【ReHac9Quest 園田裕史】](/rehac9_fan/ids/WTofaloT9P8 "wikilink")
-    -   公開日: 2026-07-08
-    -   視聴数: 63,124
-    -   **いいね数: 3,255**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/WTofaloT9P8/hqdefault.jpg)](https://www.youtube.com/watch?v=WTofaloT9P8)
-1.  [【福岡県議会】吉松県議が議長選めぐる現金授受疑惑を説明【ReHac9記者会見】](/rehac9_fan/ids/tRZ4rgzQdos "wikilink")
-    -   公開日: 2026-07-07
-    -   視聴数: 181,439
-    -   **いいね数: 3,680**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/tRZ4rgzQdos/hqdefault.jpg)](https://www.youtube.com/watch?v=tRZ4rgzQdos)
-1.  [【石丸伸二vs九州名物CEO】はっちゃんの考えない経営術とは【ReHac9Quest岩本初恵】](/rehac9_fan/ids/qYsUYxkFHA8 "wikilink")
-    -   公開日: 2026-07-05
-    -   視聴数: 39,774
-    -   **いいね数: 3,271**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/qYsUYxkFHA8/hqdefault.jpg)](https://www.youtube.com/watch?v=qYsUYxkFHA8)
-1.  [【石丸伸二vs九州経済の専門家】九州経済はなぜ強い？半導体・食・観光・自動車から見える地方の未来【ReHac9Quest岡野秀之】](/rehac9_fan/ids/31lyR2qFhA4 "wikilink")
-    -   公開日: 2026-07-01
-    -   視聴数: 75,711
-    -   **いいね数: 3,854**
-    -   出演者: 
-    - [![](https://img.youtube.com/vi/31lyR2qFhA4/hqdefault.jpg)](https://www.youtube.com/watch?v=31lyR2qFhA4)
 
