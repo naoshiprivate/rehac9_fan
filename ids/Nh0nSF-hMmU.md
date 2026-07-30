@@ -1,6 +1,6 @@
 ### [【石丸伸二vs九州名物CEO】はっちゃんを支えた漁師の父の教えとは【ReHac9Quest岩本初恵】](https://www.youtube.com/watch?v=Nh0nSF-hMmU)
 [![](https://img.youtube.com/vi/Nh0nSF-hMmU/sddefault.jpg)](https://www.youtube.com/watch?v=Nh0nSF-hMmU)
 -   公開日: 2026-06-24
--   視聴数: 116,862
--   **いいね数: 5,328**
+-   視聴数: 117,143
+-   **いいね数: 5,335**
 -   出演者: 
