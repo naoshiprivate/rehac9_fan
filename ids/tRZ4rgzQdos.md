@@ -1,6 +1,6 @@
 ### [【福岡県議会】吉松県議が議長選めぐる現金授受疑惑を説明【ReHac9記者会見】](https://www.youtube.com/watch?v=tRZ4rgzQdos)
 [![](https://img.youtube.com/vi/tRZ4rgzQdos/sddefault.jpg)](https://www.youtube.com/watch?v=tRZ4rgzQdos)
 -   公開日: 2026-07-07
--   視聴数: 354,155
--   **いいね数: 4,951**
+-   視聴数: 355,863
+-   **いいね数: 4,964**
 -   出演者: 
