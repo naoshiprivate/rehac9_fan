@@ -1,6 +1,6 @@
 ### [【石丸伸二vs九州名物CEO】「今の社会に必要な人材を潰すわけにはいかない」学校再建に動いた理由とは【ReHac9Quest岩本初恵】](https://www.youtube.com/watch?v=qYsUYxkFHA8)
 [![](https://img.youtube.com/vi/qYsUYxkFHA8/sddefault.jpg)](https://www.youtube.com/watch?v=qYsUYxkFHA8)
 -   公開日: 2026-07-05
--   視聴数: 45,001
--   **いいね数: 3,442**
+-   視聴数: 45,110
+-   **いいね数: 3,447**
 -   出演者: 
