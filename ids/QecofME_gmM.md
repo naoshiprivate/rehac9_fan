@@ -2,5 +2,5 @@
 [![](https://img.youtube.com/vi/QecofME_gmM/sddefault.jpg)](https://www.youtube.com/watch?v=QecofME_gmM)
 -   公開日: 2026-04-14
 -   視聴数: 47,808
--   **いいね数: 2,381**
+-   **いいね数: 2,382**
 -   出演者: 
