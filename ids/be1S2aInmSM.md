@@ -1,6 +1,6 @@
 ### [【石丸伸二vs福岡芸人】世界進出している福岡芸人が上京を決断、真相に迫る【ReHac9Quest ノボせもんなべ むなかったん】](https://www.youtube.com/watch?v=be1S2aInmSM)
 [![](https://img.youtube.com/vi/be1S2aInmSM/sddefault.jpg)](https://www.youtube.com/watch?v=be1S2aInmSM)
 -   公開日: 2026-08-09
--   視聴数: 67,442
--   **いいね数: 3,417**
+-   視聴数: 67,840
+-   **いいね数: 3,425**
 -   出演者: 
