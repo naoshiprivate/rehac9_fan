@@ -1,6 +1,6 @@
 ### [【石丸伸二 vs 学生起業家&政治家】絶景サウナで整う！深夜まで本音座談会【ReHac９旅in湯布院】](https://www.youtube.com/watch?v=nPol5VzdcPQ)
 [![](https://img.youtube.com/vi/nPol5VzdcPQ/sddefault.jpg)](https://www.youtube.com/watch?v=nPol5VzdcPQ)
 -   公開日: 2026-08-05
--   視聴数: 83,519
--   **いいね数: 3,871**
+-   視聴数: 83,830
+-   **いいね数: 3,874**
 -   出演者: 
