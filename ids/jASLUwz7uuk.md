@@ -1,6 +1,6 @@
 ### [【ReHac9生配信】半年振り返り！まったり雑談生配信【石丸伸二ReHac9支局長】](https://www.youtube.com/watch?v=jASLUwz7uuk)
 [![](https://img.youtube.com/vi/jASLUwz7uuk/sddefault.jpg)](https://www.youtube.com/watch?v=jASLUwz7uuk)
 -   公開日: 2026-07-12
--   視聴数: 126,909
--   **いいね数: 6,140**
+-   視聴数: 127,028
+-   **いいね数: 6,142**
 -   出演者: 
