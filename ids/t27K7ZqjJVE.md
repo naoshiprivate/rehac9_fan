@@ -1,6 +1,6 @@
 ### [【井手らっきょvsスザンヌ】昭和バラエティの過激すぎる舞台裏【ReHac9Quest in熊本】](https://www.youtube.com/watch?v=t27K7ZqjJVE)
 [![](https://img.youtube.com/vi/t27K7ZqjJVE/sddefault.jpg)](https://www.youtube.com/watch?v=t27K7ZqjJVE)
 -   公開日: 2026-05-09
--   視聴数: 73,268
--   **いいね数: 1,511**
+-   視聴数: 74,230
+-   **いいね数: 1,516**
 -   出演者: 
