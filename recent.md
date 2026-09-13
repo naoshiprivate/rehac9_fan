@@ -1,31 +1,31 @@
 1.  [【石丸伸二vs九州狂言師】狂言師・野村万禄が今の子どもたちに伝えたいこと【ReHac9Quest野村万禄】](/rehac9_fan/ids/c2bmnltuVvs "wikilink")
     -   公開日: 2026-09-12
-    -   視聴数: 32,900
-    -   **いいね数: 1,494**
+    -   視聴数: 48,677
+    -   **いいね数: 1,728**
     -   出演者: 
     - [![](https://img.youtube.com/vi/c2bmnltuVvs/hqdefault.jpg)](https://www.youtube.com/watch?v=c2bmnltuVvs)
 1.  [【石丸伸二vs大分の絶景】早朝限定!隠れた絶景とは…温泉を使った名物に感動【ReHac９旅in湯布院】](/rehac9_fan/ids/tnE3tWgoe1U "wikilink")
     -   公開日: 2026-09-04
-    -   視聴数: 164,877
-    -   **いいね数: 3,941**
+    -   視聴数: 166,891
+    -   **いいね数: 3,955**
     -   出演者: 
     - [![](https://img.youtube.com/vi/tnE3tWgoe1U/hqdefault.jpg)](https://www.youtube.com/watch?v=tnE3tWgoe1U)
 1.  [【ReHac9生配信】7,8月振り返り！まったり雑談生配信【石丸伸二ReHac9支局長】](/rehac9_fan/ids/NJRjJ8-jalo "wikilink")
     -   公開日: 2026-09-03
-    -   視聴数: 190,021
-    -   **いいね数: 5,360**
+    -   視聴数: 192,171
+    -   **いいね数: 5,363**
     -   出演者: 
     - [![](https://img.youtube.com/vi/NJRjJ8-jalo/hqdefault.jpg)](https://www.youtube.com/watch?v=NJRjJ8-jalo)
 1.  [【ReHac9 × TNC】テレビ西日本とのコラボ第3弾！揺れる福岡政治、次世代を担う若手市長が本音暴露【ReHac9TV 今野忍vs箕輪厚介vs浦野仁vs簑原悠太朗】](/rehac9_fan/ids/ILa_5HkCnlc "wikilink")
     -   公開日: 2026-09-02
-    -   視聴数: 373,752
-    -   **いいね数: 7,054**
+    -   視聴数: 376,954
+    -   **いいね数: 7,067**
     -   出演者: 
     - [![](https://img.youtube.com/vi/ILa_5HkCnlc/hqdefault.jpg)](https://www.youtube.com/watch?v=ILa_5HkCnlc)
 1.  [【石丸伸二vs福岡市長】１１月の選挙不出馬を表明、その真意とは【ReHac9SP高島宗一郎 】](/rehac9_fan/ids/BjoqY08FNOg "wikilink")
     -   公開日: 2026-08-24
-    -   視聴数: 455,388
-    -   **いいね数: 12,432**
+    -   視聴数: 458,947
+    -   **いいね数: 12,438**
     -   出演者: 
     - [![](https://img.youtube.com/vi/BjoqY08FNOg/hqdefault.jpg)](https://www.youtube.com/watch?v=BjoqY08FNOg)
 
