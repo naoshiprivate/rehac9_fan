@@ -1,6 +1,6 @@
 ### [【ReHac9生配信】7,8月振り返り！まったり雑談生配信【石丸伸二ReHac9支局長】](https://www.youtube.com/watch?v=NJRjJ8-jalo)
 [![](https://img.youtube.com/vi/NJRjJ8-jalo/sddefault.jpg)](https://www.youtube.com/watch?v=NJRjJ8-jalo)
 -   公開日: 2026-09-03
--   視聴数: 200,224
--   **いいね数: 5,374**
+-   視聴数: 201,184
+-   **いいね数: 5,378**
 -   出演者: 
