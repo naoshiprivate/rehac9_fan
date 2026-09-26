@@ -1,6 +1,6 @@
 ### [【石丸伸二vs佐賀市長】佐賀市の地方課題とは？治水対策は？【ReHac9Quest坂井英隆】](https://www.youtube.com/watch?v=zPZHt_odROk)
 [![](https://img.youtube.com/vi/zPZHt_odROk/sddefault.jpg)](https://www.youtube.com/watch?v=zPZHt_odROk)
 -   公開日: 2026-06-04
--   視聴数: 97,798
--   **いいね数: 4,479**
+-   視聴数: 98,080
+-   **いいね数: 4,480**
 -   出演者: 
