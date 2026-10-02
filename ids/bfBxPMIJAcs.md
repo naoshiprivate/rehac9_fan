@@ -1,6 +1,6 @@
 ### [【石丸伸二vs『令和の虎』総合演出】九州旅行のついでにReHac9スタジオへ【ReHac9Quest 桑田龍征】](https://www.youtube.com/watch?v=bfBxPMIJAcs)
 [![](https://img.youtube.com/vi/bfBxPMIJAcs/sddefault.jpg)](https://www.youtube.com/watch?v=bfBxPMIJAcs)
 -   公開日: 2026-08-16
--   視聴数: 164,974
--   **いいね数: 6,743**
+-   視聴数: 165,296
+-   **いいね数: 6,742**
 -   出演者: 
