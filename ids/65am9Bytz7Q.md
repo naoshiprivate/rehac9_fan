@@ -1,6 +1,6 @@
 ### [【石丸vs福岡県八女市長・広川町長】要望だけでは何も変わらない？問われる地域の当事者意識【ReHac9vs簑原悠太朗vs氷室健太郎】](https://www.youtube.com/watch?v=65am9Bytz7Q)
 [![](https://img.youtube.com/vi/65am9Bytz7Q/sddefault.jpg)](https://www.youtube.com/watch?v=65am9Bytz7Q)
 -   公開日: 2026-09-27
--   視聴数: 75,796
--   **いいね数: 2,741**
+-   視聴数: 77,753
+-   **いいね数: 2,764**
 -   出演者: 
