@@ -1,6 +1,6 @@
 ### [【石丸伸二vsやけんモテんと思う】地元福岡のエリナとまったりトーク【ReHac9Quest 平川エリナ】](https://www.youtube.com/watch?v=i4FwcB1jPv8)
 [![](https://img.youtube.com/vi/i4FwcB1jPv8/sddefault.jpg)](https://www.youtube.com/watch?v=i4FwcB1jPv8)
 -   公開日: 2026-10-15
--   視聴数: 184,893
--   **いいね数: 4,025**
+-   視聴数: 186,578
+-   **いいね数: 4,032**
 -   出演者: 
