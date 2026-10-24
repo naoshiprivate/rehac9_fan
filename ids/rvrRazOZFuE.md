@@ -1,6 +1,6 @@
 ### [【ReHac9生配信】福岡市長選立候補予定者インタビュー【なんで立候補するんですか？ながさわかんた】](https://www.youtube.com/watch?v=rvrRazOZFuE)
 [![](https://img.youtube.com/vi/rvrRazOZFuE/sddefault.jpg)](https://www.youtube.com/watch?v=rvrRazOZFuE)
 -   公開日: 2026-10-19
--   視聴数: 70,256
--   **いいね数: 1,358**
+-   視聴数: 71,134
+-   **いいね数: 1,367**
 -   出演者: 
