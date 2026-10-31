@@ -1,6 +1,6 @@
 ### [【ReHac9生配信】福岡市長選立候補予定者インタビュー【なんで立候補するんですか？あらまき明楽】](https://www.youtube.com/watch?v=nzgBy62WnaE)
 [![](https://img.youtube.com/vi/nzgBy62WnaE/sddefault.jpg)](https://www.youtube.com/watch?v=nzgBy62WnaE)
 -   公開日: 2026-10-15
--   視聴数: 52,713
--   **いいね数: 1,553**
+-   視聴数: 53,031
+-   **いいね数: 1,554**
 -   出演者: 
