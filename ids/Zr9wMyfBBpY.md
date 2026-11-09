@@ -1,6 +1,6 @@
 ### [【石丸伸二vs大分県別府市長】市民700円、観光客8,000円？ 料金差11倍の新湯治構想とは【ReHac9Quest 長野恭紘】](https://www.youtube.com/watch?v=Zr9wMyfBBpY)
 [![](https://img.youtube.com/vi/Zr9wMyfBBpY/sddefault.jpg)](https://www.youtube.com/watch?v=Zr9wMyfBBpY)
 -   公開日: 2026-10-17
--   視聴数: 77,443
--   **いいね数: 2,453**
+-   視聴数: 77,669
+-   **いいね数: 2,454**
 -   出演者: 
