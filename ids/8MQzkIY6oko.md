@@ -1,6 +1,6 @@
 ### [【ReHac9生配信】福岡市長選立候補予定者インタビュー【なんで立候補するんですか？井上きよし】](https://www.youtube.com/watch?v=8MQzkIY6oko)
 [![](https://img.youtube.com/vi/8MQzkIY6oko/sddefault.jpg)](https://www.youtube.com/watch?v=8MQzkIY6oko)
 -   公開日: 2026-10-22
--   視聴数: 23,273
--   **いいね数: 331**
+-   視聴数: 23,498
+-   **いいね数: 334**
 -   出演者: 
