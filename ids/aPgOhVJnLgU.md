@@ -1,6 +1,6 @@
 ### [＃１【石丸vsカンニング竹山】博多華丸・大吉と同期のカンニング竹山55歳が振り返る波乱万丈の芸人人生【ReHac9Questカンニング竹山】](https://www.youtube.com/watch?v=aPgOhVJnLgU)
 [![](https://img.youtube.com/vi/aPgOhVJnLgU/sddefault.jpg)](https://www.youtube.com/watch?v=aPgOhVJnLgU)
 -   公開日: 2026-11-20
--   視聴数: 270,365
--   **いいね数: 5,039**
+-   視聴数: 291,454
+-   **いいね数: 5,207**
 -   出演者: 
