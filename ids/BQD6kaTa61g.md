@@ -1,6 +1,6 @@
 ### [【石丸伸二vs福岡レジェンド】福岡の女帝 山本カヨがついにReHac9スタジオへ【ReHac9Quest 山本カヨ】](https://www.youtube.com/watch?v=BQD6kaTa61g)
 [![](https://img.youtube.com/vi/BQD6kaTa61g/sddefault.jpg)](https://www.youtube.com/watch?v=BQD6kaTa61g)
 -   公開日: 2026-11-24
--   視聴数: 141,311
--   **いいね数: 3,594**
+-   視聴数: 153,810
+-   **いいね数: 3,723**
 -   出演者: 
